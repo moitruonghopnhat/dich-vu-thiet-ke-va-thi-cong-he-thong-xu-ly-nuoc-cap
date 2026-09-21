@@ -2,7 +2,8 @@
 
 > Trong bối cảnh chất lượng nguồn nước ngày càng bị ảnh hưởng, nhu cầu xây dựng hệ thống xử lý nước cấp đạt chuẩn đang trở thành ưu tiên của nhiều doanh nghiệp. Một giải pháp **thiết kế và thi công hệ thống xử lý nước cấp** bài bản giúp đảm bảo chất lượng nước đầu ra, đồng thời tối ưu chi phí và hiệu quả vận hành. Vì vậy, việc lựa chọn đơn vị có năng lực và kinh nghiệm là yếu tố quan trọng để đảm bảo hệ thống hoạt động ổn định và bền vững.
 
-![Bản vẽ kỹ thuật hệ thống xử lý nước cấp](https:/moitruonghopnhat.com//uploads/images/Dich-vu/ban-ve-ky-thuat-he-thong-xu-ly-nuoc-cap.jpg)
+![Dịch vụ thiết kế và thi công hệ thống xử lý nước cấp](https://moitruonghopnhat.com//uploads/images/Dich-vu/thiet-ke-va-thi-cong-he-thong-xu-ly-nuoc-cap.jpg)
+
 *Dịch vụ thiết kế và thi công hệ thống xử lý nước cấp*
 
 ---
@@ -79,7 +80,7 @@ Cuối cùng, toàn bộ phương án sẽ được tổng hợp thành bảng d
 - Chi phí vận hành, bảo trì.
 - Tối ưu chi phí dài hạn.
 
-![Thiết kế và thi công hệ thống xử lý nước cấp](https:moitruonghopnhat.com/uploads/images/Dich-vu/thiet-ke-va-thi-cong-he-thong-xlnc.jpg)
+![Thiết kế và thi công hệ thống xử lý nước cấp](https://moitruonghopnhat.com/uploads/images/Dich-vu/thiet-ke-va-thi-cong-he-thong-xlnc.jpg)
 
 *Thiết kế và thi công hệ thống xử lý nước cấp*
 
@@ -104,7 +105,7 @@ Sau khi mặt bằng sẵn sàng, tiến hành lắp đặt các thiết bị ch
 - Hệ thống lọc và vật liệu lọc.
 - Máy bơm, đường ống.
 
-![Lắp đặt hệ thống xử lý nước cấp](/uploads/images/Dich-vu/lap-dat-he-thong-xu-ly-nuoc-cap.jpg)
+![Lắp đặt hệ thống xử lý nước cấp](https://moitruonghopnhat.com/uploads/images/Dich-vu/lap-dat-he-thong-xu-ly-nuoc-cap.jpg)
 
 *Lắp đặt hệ thống xử lý nước cấp*
 
@@ -131,7 +132,7 @@ Cuối cùng, hệ thống được bàn giao cho đơn vị sử dụng kèm th
 - Cung cấp tài liệu kỹ thuật.
 - Hỗ trợ kỹ thuật sau bàn giao.
 
-![Quy trình thiết kế và thi công hệ thống xử lý nước cấp](/uploads/images/Dich-vu/quy-trinh-thiet-ke-he-thong-xu-ly-nuoc-cap.jpg)
+![Quy trình thiết kế và thi công hệ thống xử lý nước cấp](https://moitruonghopnhat.com/uploads/images/Dich-vu/quy-trinh-thiet-ke-he-thong-xu-ly-nuoc-cap.jpg)
 
 *Quy trình thiết kế và thi công hệ thống xử lý nước cấp*
 
@@ -158,7 +159,7 @@ Phương pháp khử trùng là bước quan trọng nhằm tiêu diệt vi khu�
 
 Đối với nguồn nước có độ cứng cao, cần áp dụng phương pháp làm mềm để loại bỏ ion canxi và magie. Việc này giúp hạn chế đóng cặn trong đường ống và thiết bị, từ đó nâng cao tuổi thọ hệ thống và hiệu quả sử dụng nước.
 
-![Các phương pháp phổ biến trong xử lý nước cấp](/uploads/images/Dich-vu/cac-phuong-phap-pho-bien-trong-xlnc.jpg)
+![Các phương pháp phổ biến trong xử lý nước cấp](https://moitruonghopnhat.com/uploads/images/Dich-vu/cac-phuong-phap-pho-bien-trong-xlnc.jpg)
 
 *Các phương pháp phổ biến trong xử lý nước cấp*
 
@@ -180,7 +181,7 @@ Dựa trên kết quả phân tích, đội ngũ kỹ sư sẽ đề xuất côn
 
 Sau khi thống nhất phương án công nghệ, hệ thống sẽ được thiết kế chi tiết với đầy đủ sơ đồ và thông số kỹ thuật. Giai đoạn này giúp đảm bảo tính chính xác khi thi công và tạo nền tảng cho hệ thống vận hành ổn định về sau.
 
-![Bản vẽ kỹ thuật hệ thống xử lý nước cấp](/uploads/images/Dich-vu/ban-ve-ky-thuat-he-thong-xu-ly-nuoc-cap.jpg)
+![Bản vẽ kỹ thuật hệ thống xử lý nước cấp](https://moitruonghopnhat.com/uploads/images/Dich-vu/ban-ve-ky-thuat-he-thong-xu-ly-nuoc-cap.jpg)
 
 *Bản vẽ kỹ thuật hệ thống xử lý nước cấp*
 
@@ -206,7 +207,7 @@ Với hơn **15 năm kinh nghiệm thực tiễn trong lĩnh vực môi trườn
 - Quy trình làm việc rõ ràng, đảm bảo tiến độ và chất lượng triển khai.
 - Dịch vụ hậu mãi và hỗ trợ kỹ thuật giúp hệ thống vận hành bền vững lâu dài.
 
-![Hệ thống xử lý nước cấp sinh hoạt khu resort do Hợp Nhất thiết kế và lắp đặt](/uploads/images/Dich-vu/he-thong-xu-ly-nuoc-cap-sinh-hoat.jpg)
+![Hệ thống xử lý nước cấp sinh hoạt khu resort do Hợp Nhất thiết kế và lắp đặt](https://moitruonghopnhat.com/uploads/images/Dich-vu/he-thong-xu-ly-nuoc-cap-sinh-hoat.jpg)
 
 *Hệ thống xử lý nước cấp sinh hoạt khu resort do Hợp Nhất thiết kế và lắp đặt*
 
@@ -228,7 +229,7 @@ Nếu doanh nghiệp cần tư vấn, nâng cấp hoặc triển khai hệ thố
 | **Email** | [congthongtin@moitruonghopnhat.com](mailto:congthongtin@moitruonghopnhat.com) |
 | **Website** | [moitruonghopnhat.com](https://moitruonghopnhat.com/) |
 
-[![Liên hệ dịch vụ Thiết kế và thi công hệ thống xử lý nước cấp](/uploads/images/CTA/CTA-thiet-ke-thi-cong-he-thong-xu-ly-nuoc-cap.jpg)](tel:0938857768)
+[![Liên hệ dịch vụ Thiết kế và thi công hệ thống xử lý nước cấp](https://moitruonghopnhat.com/uploads/images/CTA/CTA-thiet-ke-thi-cong-he-thong-xu-ly-nuoc-cap.jpg)](tel:0938857768)
 
 *Liên hệ dịch vụ thiết kế và thi công hệ thống xử lý nước cấp*
 
