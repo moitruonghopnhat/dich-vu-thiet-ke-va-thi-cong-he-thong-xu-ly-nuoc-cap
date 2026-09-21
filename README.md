@@ -2,8 +2,7 @@
 
 > Trong bối cảnh chất lượng nguồn nước ngày càng bị ảnh hưởng, nhu cầu xây dựng hệ thống xử lý nước cấp đạt chuẩn đang trở thành ưu tiên của nhiều doanh nghiệp. Một giải pháp **thiết kế và thi công hệ thống xử lý nước cấp** bài bản giúp đảm bảo chất lượng nước đầu ra, đồng thời tối ưu chi phí và hiệu quả vận hành. Vì vậy, việc lựa chọn đơn vị có năng lực và kinh nghiệm là yếu tố quan trọng để đảm bảo hệ thống hoạt động ổn định và bền vững.
 
-![Dịch vụ thiết kế và thi công hệ thống xử lý nước cấp](/uploads/images/Dich-vu/thiet-ke-va-thi-cong-he-thong-xu-ly-nuoc-cap.jpg)
-
+![Bản vẽ kỹ thuật hệ thống xử lý nước cấp](https:/moitruonghopnhat.com//uploads/images/Dich-vu/ban-ve-ky-thuat-he-thong-xu-ly-nuoc-cap.jpg)
 *Dịch vụ thiết kế và thi công hệ thống xử lý nước cấp*
 
 ---
