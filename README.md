@@ -80,7 +80,7 @@ Cuối cùng, toàn bộ phương án sẽ được tổng hợp thành bảng d
 - Chi phí vận hành, bảo trì.
 - Tối ưu chi phí dài hạn.
 
-![Thiết kế và thi công hệ thống xử lý nước cấp](/uploads/images/Dich-vu/thiet-ke-va-thi-cong-he-thong-xlnc.jpg)
+![Thiết kế và thi công hệ thống xử lý nước cấp](https:moitruonghopnhat.com/uploads/images/Dich-vu/thiet-ke-va-thi-cong-he-thong-xlnc.jpg)
 
 *Thiết kế và thi công hệ thống xử lý nước cấp*
 
